@@ -1,0 +1,5 @@
+- 👋 ShockTiger
+- 👀 Cheater
+- 🌱 Discord Hacker and Raider
+- 💞️ Developer
+- 📫 Anti Term Founder
